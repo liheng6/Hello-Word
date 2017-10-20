@@ -1,2 +1,4 @@
 # Hello-Word
-my repository
+my repositoryiwansasjc
+SO EASY 
+哈哈哈哈！！！
